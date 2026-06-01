@@ -1,1 +1,0 @@
-# kihurakimathi.github.io
